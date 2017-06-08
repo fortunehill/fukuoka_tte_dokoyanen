@@ -24,7 +24,7 @@ https://www.facebook.com/startupcafefukuoka/posts/1199566330171721
 
 参加対象　福岡市民,関係者
 
-目的は
+-[x]目的は
 
 福岡市の予算額は
 
