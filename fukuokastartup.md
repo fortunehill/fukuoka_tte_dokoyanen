@@ -27,3 +27,5 @@ https://www.facebook.com/startupcafefukuoka/posts/1199566330171721
 目的は
 
 福岡市の予算額は
+
+参加者費用は
