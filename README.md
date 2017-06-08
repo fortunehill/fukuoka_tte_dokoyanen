@@ -1,4 +1,3 @@
-# fukuoka_tte_dokoyanen
-profile
+## fukuoka_tte_dokoyanen
 
 #  福岡ってどこやねん？
