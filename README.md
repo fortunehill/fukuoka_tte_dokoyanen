@@ -2,4 +2,4 @@
 
 #  福岡ってどこやねん？
 
-　　　　[概要](https://github.com/fortunehill/fukuoka_tte_dokoyanen/blob/master/Outlines.md)
+　　　　[概要](https://github.com/fortunehill/fukuoka_tte_dokoyanen/blob/master/outlines.md)
