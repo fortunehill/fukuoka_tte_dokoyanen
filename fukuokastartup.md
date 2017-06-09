@@ -31,3 +31,5 @@ https://www.facebook.com/startupcafefukuoka/posts/1199566330171721
 参加者費用は
 
 [福岡市よりの業務受託会社](https://prtimes.jp/main/html/rd/p/000000007.000009089.html)
+
+[プログラム詳細](https://github.com/fortunehill/fukuoka_tte_dokoyanen/blob/master/d9089-20170522-9014.pdf)
