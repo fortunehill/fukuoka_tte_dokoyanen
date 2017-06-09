@@ -26,9 +26,9 @@ https://www.facebook.com/startupcafefukuoka/posts/1199566330171721
 
 -[目的は]
 
-福岡市の予算額は
+福岡市の業務委託の予算額は？
 
-参加者費用は
+参加者費用は 国内研修は無料(8回x３時間)  海外研修(サンフランシスコ６日間)19万円から
 
 [福岡市よりの業務受託会社](https://prtimes.jp/main/html/rd/p/000000007.000009089.html)
 
