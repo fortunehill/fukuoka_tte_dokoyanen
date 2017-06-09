@@ -29,7 +29,6 @@ https://www.facebook.com/startupcafefukuoka/posts/1199566330171721
 参加対象　福岡市民,関係者
 
 - [ ] 目的は？
-- [ ] Baz
 
 福岡市の業務委託の予算額は？
 
