@@ -21,6 +21,10 @@ https://www.facebook.com/startupcafefukuoka/posts/1199566330171721
 市民報告会
 12⽉16⽇
 
+[プログラム詳細](https://github.com/fortunehill/fukuoka_tte_dokoyanen/blob/master/d9089-20170522-9014.pdf)
+
+
+
 
 参加対象　福岡市民,関係者
 
@@ -32,4 +36,3 @@ https://www.facebook.com/startupcafefukuoka/posts/1199566330171721
 
 [福岡市よりの業務受託会社](https://prtimes.jp/main/html/rd/p/000000007.000009089.html)
 
-[プログラム詳細](https://github.com/fortunehill/fukuoka_tte_dokoyanen/blob/master/d9089-20170522-9014.pdf)
