@@ -30,7 +30,7 @@ https://www.facebook.com/startupcafefukuoka/posts/1199566330171721
 
 目的・・・ 福岡市内の起業家やその候補者などを対象とし，海外展開へのスキルやマインドを高めること
 
-福岡市の業務委託の予算額は？
+福岡市の業務委託の予算額は　　約7000万円　　[福岡市２９年度予算概要](http://www.city.fukuoka.lg.jp/data/open/cnt/3/57891/1/chouseigaiyou.pdf)
 
 参加者費用は 国内研修は無料(8回x３時間)  海外研修(サンフランシスコ６日間)19万円から
 
