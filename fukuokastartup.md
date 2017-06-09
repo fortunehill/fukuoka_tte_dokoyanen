@@ -29,3 +29,5 @@ https://www.facebook.com/startupcafefukuoka/posts/1199566330171721
 福岡市の予算額は
 
 参加者費用は
+
+[福岡市よりの業務受託会社](https://prtimes.jp/main/html/rd/p/000000007.000009089.html)
